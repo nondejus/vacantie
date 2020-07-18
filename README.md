@@ -1,2 +1,0 @@
-# vacatie
-maatschappelijk activiteiten begleiden
